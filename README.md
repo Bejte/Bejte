@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Bejte / Beste Naz Yavuz
+- 👀 I’m interested in video games, reading books, learning languages ... 
+- 🌱 I’m currently a freshman at Bilkent. Studying CS.
